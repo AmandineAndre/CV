@@ -8,4 +8,4 @@ Afin d’augmenter mes compétences techniques (Power BI, Python, …), je suis 
 
 **Je recherche activement un poste dans le domaine de la Data/Big Data.**
 
-Pour plus d'informations : [Linkedin](www.linkedin.com/in/amandine-andré-data-analyst-senior)
+Pour plus d'informations : [Linkedin](https://www.linkedin.com/in/amandine-andré-data-analyst-senior)
